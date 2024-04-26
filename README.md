@@ -6,7 +6,9 @@ Meu nome é Luciane Macedo
 - Vou utilizar esse espaço para me organizar e publicar meus trabalhos
 
 #Você pode entrar em contato comigo pelo email:
-📧luciane.macedo.carneiro@escola.pr.gov.br ou whats ☎️44 991480059
+📧luciane.macedo.carneiro@escola.pr.gov.br
+
+whats ☎️44 991480059
 
 ![](https://media1.tenor.com/m/dFEm4PSPNUgAAAAC/the-little-lulu-show-little-lulu.gif)
 <!--
